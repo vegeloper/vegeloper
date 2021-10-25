@@ -5,7 +5,7 @@
 - 📫 Feel free to reach me at khashi@vegeloper.com or simply visit Vegeloper.com
 
 
-Wanna know me in only 4-steps? Follow me ➜
+Wanna know me in only 4 steps? Follow me ➜
 
 
 Who Says Tech Folks Can't Support Vegans❓🌎
